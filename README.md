@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @J-e-w-e-l
+- 👋 Hi, I’m Jewel Crystal
 - 👀 I’m interested in ..music.
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently in stem programme
+- 💞️ I’m looking forward to gain the necessary skills in this course
 - 📫 How to reach me .@ngairacrystal@gmail.com..
 
 <!---
