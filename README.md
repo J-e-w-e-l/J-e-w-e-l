@@ -1,7 +1,8 @@
-- 👋 Hi, I’m Jewel Crystal
-- 👀 I’m interested in ..music.
-- 🌱 I’m currently in stem programme
-- 💞️ I’m looking forward to gain the necessary skills in this course
+- 👋 Hi, I’m Jewel Crystal Baraka.
+- 👀 I’m interested in a lot of stuff like music, adventura,gaining knowledge and others.
+- 🌱 I’m currently a radiography student in JKUAT, Juja.
+- I joined the stem boot camp in June after I completed my KCSE Examinations.
+- 💞️ I’m looking forward to gain the necessary skills in this course.
 - 📫 How to reach me .@ngairacrystal@gmail.com..
 
 <!---
